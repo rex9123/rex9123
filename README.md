@@ -3,8 +3,8 @@
 - 🌱 I’m currently a CS undergrad
 - 💞️ I’m looking to collaborate on Development 
 - 📫 How to reach me ...
-
 instagram: @_the_rexemplary
+Gmail : mariarexswamy121@gmail.com
 
 
 
