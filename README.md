@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @rex9123<br>👀 I’m interested in Technology and learning new skills<br>🌱 I’m currently a CS undergrad<br>💞️ I’m looking to collaborate on Development<br>📫 How to reach me<br>Instagram: @_the_rexemplary<br>Gmail : mariarexswamy121@gmail.com
+👋 Hi, I’m @rex9123<br>👀 I’m interested in Technology and learning new skills<br>🌱 I’m currently a CS undergrad<br>💞️ I’m looking to collaborate on Development<br>📫 How to reach me<br>Instagram: _rexemplary<br>Gmail : mariarexswamy121@gmail.com
 
 
 ## 🌐 Socials:
